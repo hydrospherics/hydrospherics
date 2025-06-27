@@ -1,2 +1,2 @@
-<a href="https://ibb.co/d4f8RPMt"><img src="https://i.ibb.co/5h1bPr4k/FB-IMG-1745431618047.jpg" alt="FB-IMG-1745431618047" border="0"></a>
-> art by pinepin btw.
+<a href="https://ibb.co/mrxzs5jM"><img src="https://i.ibb.co/9mMYXHDC/Screenshot-2025-06-24-121342.png" alt="Screenshot-2025-06-24-121342" border="0"></a>
+> above image is courtesy of my sweet girlfriend, Kayvia
